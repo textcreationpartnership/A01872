@@ -35,10 +35,44 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Natures cruell step-dames: or, Matchlesse monsters of the female sex; Elizabeth Barnes, and Anne Wil
+
 #####Body#####
 
-1. What Flood sayd at the place of Execution.
+1. A Narration of the Diabolicall
+seduction of Elizabeth Barnes,
+late of Battersey in the County of Surrey
+widdow, mercilesly to murder Susan
+Barnes her owne naturall Child.
+
+1. Serious advertisements unto
+all good Christians, and cautions,
+by this ignorant sinfull womans
+suddaine downe-fall.
+
+1. The last Caution is the neglect of Gods Minister
+in not repairing unto him.
+
+1. The Confession of Elizabeth Barnes, the
+26. of Aprill, 1637, at the place of Execution.
+
+1. A Relation of Anne Willis, the manner of
+of the murdering of her owne Child, confessed
+by her at the place of Execution.
+
+1. A Relation of Iohn Flood, late of S. Giles
+in the Field, for the committing of a Rape
+on the body of his owne naturall child, being
+under the age of ten yeares.
+
+    _ What Flood sayd at the place of Execution.
+
+1. The Confession of Ioane Burs, taken before
+Sir Iames Cambell, Knight, the 8. day of
+Aprill, 1637.
+
+1. The Confession of Anne Holden, before
+Sir Iames Cambell, the 16. day of
+March, 1637.
 
 **Types of content**
 
